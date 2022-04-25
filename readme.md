@@ -1,4 +1,4 @@
-### Obrigada ❤️
+### Thanks ❤️
 [@eticialima](https://www.instagram.com/eticialima)
 
 ### buymeacoffee buymeacoffee
